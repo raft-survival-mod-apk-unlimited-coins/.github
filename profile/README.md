@@ -13,7 +13,7 @@ Sorotan utama termasuk:
 
 Kombinasi manajemen sumber daya, pembuatan, dan eksplorasi menjadikan game ini favorit di kalangan pemain muda yang menyukai petualangan dan strategi.
 
-## Unduh Sekarang:😊 https://heyapks.com/
+## Unduh Sekarang:😊 [Raft Survival Mod APK](https://heyapks.com/raft-survival.html)
 
 ## Fitur dari Raft Survival Mod APK
 
